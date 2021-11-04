@@ -1,4 +1,4 @@
-👋 Hi, I’m @Jorras
+👋 Hi, I’m Jorras  
 live in 🇨🇿  
 19 years old  
 🏳️‍⚧️ she/her  
