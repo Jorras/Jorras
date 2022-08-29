@@ -1,6 +1,6 @@
 👋 Hi, I’m Jorras  
 live in 🇨🇿  
-19 years old  
-🏳️‍⚧️ she/her  
+20 years old  
+🏳️‍⚧️ she/they  
 
 This is a repository mostly for school stuffs so 💁‍♀️
